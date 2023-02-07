@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jh1hjkh
 - 👀 I’m interested in aviation, aviation engineering, machine learning, AI, data mining.
 - 🌱 I’m currently learning electrical and computer engineering.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ANYTHING!
 - 📫 How to reach me jh1hjkh@gmail.com
 
 <!---
